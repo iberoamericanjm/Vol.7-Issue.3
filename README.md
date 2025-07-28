@@ -7,7 +7,7 @@ Esteban-Zubero E. Emergency Department Overcrowding and Its Relation to Televise
 
 Helvacı MS, Tekinay M, Yılmaz O,,Şahin M, İpek BÖ, Vurgun E, Dikker O, Dağ H. Determination of Beta Thalassemia trait and abnormal Hemoglobin variant frequency. Iberoam J Med. 2025;7(3)74-77. doi: 10.53986/ibjm.2025.0015.
 
-Amaechi RA, Akhuetiemen DEO, Iyevhobu KO, Oikerhe GE, Omoruyi MO, Udoaka A, Ugheoke OC, Osemu-Lucky JA, Dongyeru E, Ipingbemi AE, Eigbedio AO. Iberoam J Med. 2025;7(3)78-85. doi: 10.53986/ibjm.2025.0018.
+Amaechi RA, Akhuetiemen DEO, Iyevhobu KO, Oikerhe GE, Omoruyi MO, Udoaka A, Ugheoke OC, Osemu-Lucky JA, Dongyeru E, Obohwemu KO, Eigbedio AO. Iberoam J Med. 2025;7(3)78-85. doi: 10.53986/ibjm.2025.0018.
 
 Villa Gómez CC, Hernández Ortiz C, Boda Garnica JA,, Olea Muñoz OA, Giraldo Restrepo D, Pérez Pinto AM, David Orrego MA, Herrera Aguirre LF, Serrano Baez GA. Comparative Outcomes of Video vs. Direct Laryngoscopy in Adults in Critical Condition: A Narrative Review of First-Attempt Success, Complications, and Contextual Decision-Making. Iberoam J Med. 2025;7(3):86-92. doi: 10.53986/ibjm.2025.0014.
 
